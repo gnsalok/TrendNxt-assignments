@@ -1,0 +1,1 @@
+# TrendNxt-assignments
